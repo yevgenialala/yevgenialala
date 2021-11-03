@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @yevgenialala
+- 👀 I’m interested in talent sourcing , human resources , marketing and yoga)
+- 🌱 I’m currently learning IT talent sourcing
+- 📫 yevgenia883@gmail.com
